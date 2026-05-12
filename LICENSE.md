@@ -1,4 +1,4 @@
-# 
+# MathType for PC | MathType for Windows exclusive Extension: data-visualization & numerical-computation is the best MathType for PC | MathType for Windows extension, featuring
 
 
 
